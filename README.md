@@ -1,4 +1,3 @@
-## Hi there 👋
 # Ayush Kakade
 **`Techophile`**
 ## 🌐 Socials:
